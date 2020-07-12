@@ -1,0 +1,2 @@
+# Theotabek
+uzbeks
